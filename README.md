@@ -9,3 +9,4 @@ Z Tym jest jak z meblami i branżą mebli, autami na zmówienie. Czy inne rzeczy
 Za dużo specjalistów dużej maści o podjerzanej przeszłości i CV, za dużo hakerów, za mało robotyki co słucha. Jak zegarakmi żonami co poszły na szmelc lub do niewoli do sklepu. 
 To co kali opowiada i oni to feke news. 
 Oni to fack men. 
+Po tych wiadomościach można poznać post mafie. 
