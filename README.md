@@ -10,3 +10,4 @@ Za dużo specjalistów dużej maści o podjerzanej przeszłości i CV, za dużo 
 To co kali opowiada i oni to feke news. 
 Oni to fack men. 
 Po tych wiadomościach można poznać post mafie. 
+Ci ludzie to chamski podatek Bykowe od nie posiadania dzieci i żony. 
