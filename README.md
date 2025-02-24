@@ -12,3 +12,4 @@ Oni to fack men.
 Po tych wiadomościach można poznać post mafie. 
 Ci ludzie to chamski podatek Bykowe od nie posiadania dzieci i żony. 
 Oni to Neradeltaczycy jak ci ze stadionu od Kaliego Linuxa i Jepetta Gierka i Stalina. 
+Kali to Jeppeto. 
