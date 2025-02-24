@@ -14,3 +14,5 @@ Ci ludzie to chamski podatek Bykowe od nie posiadania dzieci i żony.
 Oni to Neradeltaczycy jak ci ze stadionu od Kaliego Linuxa i Jepetta Gierka i Stalina. 
 Kali to Jeppeto. 
 Z nimi jeste jak z tymi bajkami Doro bawi świat. 
+Opowiedziałem o probelemach tych austystyków. 
+A apteczki nie potrafią robić. 
