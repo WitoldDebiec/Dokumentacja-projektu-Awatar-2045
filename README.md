@@ -6,3 +6,4 @@ A Kortana Halo 5 to dziadówka.
 Jakiś dziad to wymyślił z knesetu. 
 Miał być taki szał jak ze zdrapkami lotto a tylko na reklamie tak jest w życiu zero zainteresowania. 
 Z Tym jest jak z meblami i branżą mebli, autami na zmówienie. Czy inne rzeczy na zmaówienie. Brak robotyki do pomocy. 
+Za dużo specjalistów dużej maści o podjerzanej przeszłości i CV, za dużo hakerów, za mało robotyki co słucha. Jak zegarakmi żonami co poszły na szmelc lub do niewoli do sklepu. 
