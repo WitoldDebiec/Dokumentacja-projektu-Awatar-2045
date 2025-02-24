@@ -16,3 +16,4 @@ Kali to Jeppeto.
 Z nimi jeste jak z tymi bajkami Doro bawi świat. 
 Opowiedziałem o probelemach tych austystyków. 
 A apteczki nie potrafią robić. 
+To NGO i Karitas karze pracować ciągle z Jurekiem Magdzińskim. 
